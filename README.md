@@ -4,18 +4,34 @@ https://gimletmedia.com/
 
 Brittany Luse is the host of the Sampler Show on *Gimlet Media* and *For Colored Nerds*. She has made many hateful remarks on her show. I'll use this page to catalog her sentiment on race so everyone is aware who Gimlet Media has hired.
 
-##Startup
----
-##Diversity Report
-[https://gimletmedia.com/episode/19-diversity-report/](https://gimletmedia.com/episode/19-diversity-report/)
-
-| Quote        | Time           |
-| ------------- |:-------------:|
-| Targeting is we're **actively trying to make our organization less white**. So we're gonna do these things. Cause we're actively trying... We're trying to go outside our networks to find talented people who are **not white**. Targeting is fine for me. | 16:23 |
----
 
 ##For Colored Nerds
 ---
+
+##I'm Thankful
+[https://soundcloud.com/forcolorednerds/im-thankful](https://soundcloud.com/forcolorednerds/im-thankful)
+
+| Quote        | Time           |
+| ------------- |:-------------:|
+|**I saw a white woman with box braids**... ...But I gave her a good old hard look and I was like "No... you're an actual **white woman**, you actually have box braids". So **my body tensed up and I got stressed** and like I said before I talk a good game, but I'm not a **fighting woman** you know what I'm saying. I don't have the physical ability. But I did give her the look... **"Do you have a fucking problem?"** I gave her the look of "Do you have a"... **I made eye contact with her** and I was with another black woman. We confirmed after the fact that we had both given her the **"Do you have a fucking problem"** look. I'm gonna tell you something right now. **Speaking directly to white women** who feel the need to get some Bo Derek raggedy ass corn rows... Or Locks... Or Box braids, or **whatever the fuck**. **First of all don't**. Second of all **they don't look cute on you** so don't be getting any ideas. THEY-DON'T-LOOK-CUTE-ON-YOU-,-**THEY-ARE-NOT-FOR-YOU!**               |3:00              |
+
+##Auntie Chellie
+[https://soundcloud.com/forcolorednerds/auntie-chellie](https://soundcloud.com/forcolorednerds/auntie-chellie)
+
+| Quote        | Time           |
+| ------------- |:-------------:|
+|There is this emphasis on like getting married to the right person and hopefully being financially stable enough to do that and then starting a family. These are things that I know I desire, I grew up with them. And sometimes that can seem like it's even further away than it already feels and then **there are like all these white women** who want to **make you feel like shit** because it's the system you want to participate in.                |31:10        |
+|If you put a bunch of NBA players in line and they faced all of their partners in line. You would see very clear distinctions between a line of black men and then their female partners. If you saw any black faces in the line of partners they're gonna be, you know... "light brights" or possibly ethnically ambiguous and you know the wavy hair and the whole... **"All my broads is foreign" I hate that shit so much**.                 |40:30        |
+
+##Hollywood Shuffle
+[https://soundcloud.com/forcolorednerds/hollywood-shuffle](https://soundcloud.com/forcolorednerds/hollywood-shuffle)
+
+| Quote        | Time           |
+| ------------- |:-------------:|
+|I would say your **average american white person is medium racist**               |36:45        |
+|If they were white... If Nia Long was white. She'd probably be like... I don't even want to sit here and name names because people be salty 'cause I name out all these **untalented white people** that be at the Oscars every year. I'm serious there are some white epople at the oscars every year, and I'm like why? ... **All them white girls** that be at the Oscars don't act like Cate Blanchett. Like y'all aint all Maryl Streep.              |47:00        |
+|One of these **ugly little white boys** I went to Highschool with told me I was funny looking. I would pay money to see what he looks like right fuckin' now. Rob. I'm not gonna say your last name, but **I will fuckin' name you**.  |51:50        |
+
 ##Exploring Whiteness
 [https://soundcloud.com/forcolorednerds/exploring-whiteness](https://soundcloud.com/forcolorednerds/exploring-whiteness)
 
@@ -48,6 +64,17 @@ Brittany Luse is the host of the Sampler Show on *Gimlet Media* and *For Colored
 | (Talking about black people hiring other black people) Eric: ...they wonder immediately: "is that because they come from a background that is different than everyone else?" And then you're responsible for that and they're like: "Well, did you hire them because they're black like you?" Brittany: You can't ask somebody else: "oh hey, you know such and such developer is fucking up, is it because you guys are white? Did you hire her because she's white like you?" <Laughing> "**I think her pre-occupation with Taylor Swift keeps her from being able to code as well as the rest of the team.**" ... **And that's the logic that keeps a lot of people who look like us out... legitimately**.              |25:00              |
 |White people are going to be a minority in 2040? Which... I kinda think that's a logical fallacy...               |26:50              |
 
+##Jon Then Baltimore
+[https://soundcloud.com/forcolorednerds/20-jon-then-baltimore](https://soundcloud.com/forcolorednerds/20-jon-then-baltimore)
+
+| Quote        | Time           |
+| ------------- |:-------------:|
+|The people they have you thinking are the violent ones those are the people who are being acted upon long before there was a brick going through a window. It was policy, it was things that were based on people's opinions or based on keeping certain structures in place that were then codified into law. All of those things that our government or our policy structures have in place to keep black folks where they are especially those things that serve to keep us from services that we need, living someplace with a decent tax base that you can **actually be able to partake in the things you're supposed to get for being a tax paying citizen**. **Those things are violent**.                 |33:00        |
+| **In general I don't condone violence**, but you must also see **red-lining as violence** and you have to see the **ghetto as public policy as violence**              |44:45        |
+|**White supremacy affects every single system we have in this country**... ...Do you benefit from **white supremacy**? **Hell. Mother. Fucking. Yes**. The same way I have two able legs and I benefit from them working.                |52:30        |
+| **White supremacy is so insidius** that to be a black woman is to be the polar opposite of a **white man**. So just bare with us. We live in this **white supremacist hetero-patriarchy** which is like a fancy way of saying if you are not a **straight white man** then **you are fucked** in some type of way. So, we live in this **white supremecist hetero-patriarchy** and at the **top of that pyramid is a white man**. So like, other countries are set up different ways, I'm not gonna speak on that, but in America **the polar oppostite of that is being a black woman**. **White supremacy**, the way it's set up, **black women don't exist**.               |57:02        |
+|There is more than one recording of Nina Simone singing "Missisipi Godamn"... **she has such pep and such energy** and if you've never heard the song **you must be white**. (laughing)               |1:03:24        |
+
 ##And Not A White School
 [https://soundcloud.com/forcolorednerds/and-not-a-white-school](https://soundcloud.com/forcolorednerds/and-not-a-white-school)
 
@@ -65,21 +92,6 @@ Brittany Luse is the host of the Sampler Show on *Gimlet Media* and *For Colored
 | ------------- |:-------------:|
 |I am very annoyed at this just because a **white girl has a big butt the world has to stop**.   |10:45               |
 
-##I'm Thankful
-[https://soundcloud.com/forcolorednerds/im-thankful](https://soundcloud.com/forcolorednerds/im-thankful)
-
-| Quote        | Time           |
-| ------------- |:-------------:|
-|**I saw a white woman with box braids**... ...But I gave her a good old hard look and I was like "No... you're an actual **white woman**, you actually have box braids". So **my body tensed up and I got stressed** and like I said before I talk a good game, but I'm not a **fighting woman** you know what I'm saying. I don't have the physical ability. But I did give her the look... **"Do you have a fucking problem?"** I gave her the look of "Do you have a"... **I made eye contact with her** and I was with another black woman. We confirmed after the fact that we had both given her the **"Do you have a fucking problem"** look. I'm gonna tell you something right now. **Speaking directly to white women** who feel the need to get some Bo Derek raggedy ass corn rows... Or Locks... Or Box braids, or **whatever the fuck**. **First of all don't**. Second of all **they don't look cute on you** so don't be getting any ideas. THEY-DON'T-LOOK-CUTE-ON-YOU-,-**THEY-ARE-NOT-FOR-YOU!**               |3:00              |
-
-##Auntie Chellie
-[https://soundcloud.com/forcolorednerds/auntie-chellie](https://soundcloud.com/forcolorednerds/auntie-chellie)
-
-| Quote        | Time           |
-| ------------- |:-------------:|
-|There is this emphasis on like getting married to the right person and hopefully being financially stable enough to do that and then starting a family. These are things that I know I desire, I grew up with them. And sometimes that can seem like it's even further away than it already feels and then **there are like all these white women** who want to **make you feel like shit** because it's the system you want to participate in.                |31:10        |
-|If you put a bunch of NBA players in line and they faced all of their partners in line. You would see very clear distinctions between a line of black men and then their female partners. If you saw any black faces in the line of partners they're gonna be, you know... "light brights" or possibly ethnically ambiguous and you know the wavy hair and the whole... **"All my broads is foreign" I hate that shit so much**.                 |40:30        |
-
 ##On The Couch
 [https://soundcloud.com/forcolorednerds/on-the-couch](https://soundcloud.com/forcolorednerds/on-the-couch)
 
@@ -91,33 +103,11 @@ Brittany Luse is the host of the Sampler Show on *Gimlet Media* and *For Colored
 ##And All That Jazz feat. Jazmine Hughes
 [https://soundcloud.com/forcolorednerds/and-all-that-jazz](https://soundcloud.com/forcolorednerds/and-all-that-jazz)
 
-(After returning from vacationing in Martha's vineyard with her family)
-
 | Quote        | Time           |
 | ------------- |:-------------:|
 |**White people are co-opting racial humor** and co-opting **"white people be white" jokes**, which is one of **my great joys**.|12:25|
 |Jazmine Hughes: I wasn't saying white people should stop making the jokes. **I think white people should stop doing a lot of stuff** and making jokes is further down the list. But I was saying if you're going to make these jokes you're not helping anything. You're not helping the cause by making fun of white people because **you are still white**, and **you still benefit from the white supremacy that guides our society** and you're not making anybody feel good. Brittany: Yeah, it just kinda serves to make you **feel a little less bad about being white**.               |19:48        |
 | ..especially if we're going to be **yelling at white people** every week               | 23:00       |
-
-##Hollywood Shuffle
-[https://soundcloud.com/forcolorednerds/hollywood-shuffle](https://soundcloud.com/forcolorednerds/hollywood-shuffle)
-
-| Quote        | Time           |
-| ------------- |:-------------:|
-|I would say your **average american white person is medium racist**               |36:45        |
-|If they were white... If Nia Long was white. She'd probably be like... I don't even want to sit here and name names because people be salty 'cause I name out all these **untalented white people** that be at the Oscars every year. I'm serious there are some white epople at the oscars every year, and I'm like why? ... **All them white girls** that be at the Oscars don't act like Cate Blanchett. Like y'all aint all Maryl Streep.              |47:00        |
-|One of these **ugly little white boys** I went to Highschool with told me I was funny looking. I would pay money to see what he looks like right fuckin' now. Rob. I'm not gonna say your last name, but **I will fuckin' name you**.  |51:50        |
-
-##Jon Then Baltimore
-[https://soundcloud.com/forcolorednerds/20-jon-then-baltimore](https://soundcloud.com/forcolorednerds/20-jon-then-baltimore)
-
-| Quote        | Time           |
-| ------------- |:-------------:|
-|The people they have you thinking are the violent ones those are the people who are being acted upon long before there was a brick going through a window. It was policy, it was things that were based on people's opinions or based on keeping certain structures in place that were then codified into law. All of those things that our government or our policy structures have in place to keep black folks where they are especially those things that serve to keep us from services that we need, living someplace with a decent tax base that you can **actually be able to partake in the things you're supposed to get for being a tax paying citizen**. **Those things are violent**.                 |33:00        |
-| **In general I don't condone violence**, but you must also see **red-lining as violence** and you have to see the **ghetto as public policy as violence**              |44:45        |
-|**White supremacy affects every single system we have in this country**... ...Do you benefit from **white supremacy**? **Hell. Mother. Fucking. Yes**. The same way I have two able legs and I benefit from them working.                |52:30        |
-| **White supremacy is so insidius** that to be a black woman is to be the polar opposite of a **white man**. So just bare with us. We live in this **white supremacist hetero-patriarchy** which is like a fancy way of saying if you are not a **straight white man** then **you are fucked** in some type of way. So, we live in this **white supremecist hetero-patriarchy** and at the **top of that pyramid is a white man**. So like, other countries are set up different ways, I'm not gonna speak on that, but in America **the polar oppostite of that is being a black woman**. **White supremacy**, the way it's set up, **black women don't exist**.               |57:02        |
-|There is more than one recording of Nina Simone singing "Missisipi Godamn"... **she has such pep and such energy** and if you've never heard the song **you must be white**. (laughing)               |1:03:24        |
 
 ##From Bessie To Beyonce feat. Soraya Nadia McDonald
 [https://soundcloud.com/forcolorednerds/from-bessie-to-beyonce](https://soundcloud.com/forcolorednerds/from-bessie-to-beyonce)
@@ -154,3 +144,12 @@ Brittany Luse is the host of the Sampler Show on *Gimlet Media* and *For Colored
 | ------------- |:-------------:|
 | What is it something some people say sometimes? "Editrix". It's like a fancy, **weird**, mashup, **made-up white people word** that they use sometimes |4:20        |
 
+##Startup
+---
+##Diversity Report
+[https://gimletmedia.com/episode/19-diversity-report/](https://gimletmedia.com/episode/19-diversity-report/)
+
+| Quote        | Time           |
+| ------------- |:-------------:|
+| Targeting is we're **actively trying to make our organization less white**. So we're gonna do these things. Cause we're actively trying... We're trying to go outside our networks to find talented people who are **not white**. Targeting is fine for me. | 16:23 |
+---
