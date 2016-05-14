@@ -161,5 +161,5 @@ Brittany Luse is the host of the Sampler Show on *Gimlet Media* and *For Colored
 
 | Quote        | Time           |
 | ------------- |:-------------:|
-| Kiana Fitzgerald: I find it so wild how white people cannot consume a product that is not explicitly for them. Brittany: Yeah, yeah!  | 36:45 |
+| Kiana Fitzgerald: I find it so wild how white people cannot consume a product that is not explicitly for them. Brittany: Yeah, yeah! And they can't even quietly not consume it. You could just not tweet. You could not write this full article.  | 36:45 |
 ---
