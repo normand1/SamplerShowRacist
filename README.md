@@ -153,3 +153,13 @@ Brittany Luse is the host of the Sampler Show on *Gimlet Media* and *For Colored
 | ------------- |:-------------:|
 | Targeting is we're **actively trying to make our organization less white**. So we're gonna do these things. Cause we're actively trying... We're trying to go outside our networks to find talented people who are **not white**. Targeting is fine for me. | 16:23 |
 ---
+
+##Sampler
+---
+##Lemonade
+[https://gimletmedia.com/episode/14-all-the-ways-to-say-lemonade/](https://gimletmedia.com/episode/14-all-the-ways-to-say-lemonade/)
+
+| Quote        | Time           |
+| ------------- |:-------------:|
+| Kiana Fitzgerald: I find it so wild how white people cannot consume a product that is not explicitly for them. Brittany: Yeah, yeah!  | 36:45 |
+---
